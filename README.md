@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @princebeni
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning Js,html, CSS
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me princebeni.dan@gmail.com🤙
+- 😄 Pronouns: SIR
+- ⚡ Fun fact: MEOW😼
